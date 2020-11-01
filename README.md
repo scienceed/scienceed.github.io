@@ -1,1 +1,0 @@
-# scienceed.github.io
